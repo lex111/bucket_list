@@ -1,2 +1,3 @@
-# bucket_list
-A list of things I'd like to do before I die!
+# Bucket List @ lex111
+
+> TL;DR: My life is a bunch of problems and mistakes... no sense to live there more and wasting oxygen. Nobody will cry after me...
